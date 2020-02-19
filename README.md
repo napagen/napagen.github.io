@@ -1,1 +1,0 @@
-# napagen.github.io
